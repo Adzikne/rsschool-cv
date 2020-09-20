@@ -3,7 +3,7 @@
 +375 29 867-06-33  
 adzikne@gmail.com
 ## About me ##
-NedoCoder
+NedoCoder with ambition
 ## Education ##
 **Graduated BSEU (economic informatics)**  
 2013-2017
