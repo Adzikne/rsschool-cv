@@ -1,1 +1,1 @@
-https://Adzikne.github.io/rsschool-cv/cv
+https://Adzikne.github.io/rsschool-cv/
