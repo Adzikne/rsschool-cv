@@ -33,7 +33,7 @@ Trading (Scalping, Intraday)
 English A2  
 Español A2
 ## Contacts ##
-Facebook: [facebook.com/azikne](https://www.facebook.com/adzikne/)  
+Facebook: [facebook.com/adzikne](https://www.facebook.com/adzikne/)  
 Linkedin: [linkedin.com/in/adzikne](https://www.linkedin.com/in/adzikne/)  
 GitHub: [github.com/Adzikne](https://github.com/Adzikne)
 
