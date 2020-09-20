@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Adzikne.github.io/rsschool-cv/cv
